@@ -6,4 +6,4 @@ Currently studying Network and Informatic solutions at [Halova 16](https://spseh
 
 Reach me here:
   - Actually would be lot cooler if you didn't.
-  -[Twitter](twitter.com/pewdiepie)
+  - [Twitter](twitter.com/pewdiepie)
